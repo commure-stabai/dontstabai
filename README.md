@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dontstabai
+- 👀 I’m interested in making the world better
+- 🌱 I’m currently learning things
+- 💞️ I’m looking to collaborate on stuff
+- 📫 Reach me on Slack
