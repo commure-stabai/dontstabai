@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dontstabai
+- 👋 Hi, I’m Shawn Tabai, aka stabai, aka @dontstabai
 - 👀 I’m interested in making the world better
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on stuff
